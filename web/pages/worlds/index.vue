@@ -1,1 +1,0 @@
-<h1>WORLDS LIST</h1>
